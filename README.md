@@ -4,16 +4,21 @@ Expert Developers at Aglowid IT Solutions bring you a quick tutorial that will h
 
 💻 Video Source: https://www.youtube.com/watch?v=pHu_Rhv1tBg&t=5s
 
-👉Fitness App Development Solution - https://aglowiditsolutions.com/fitnes...
+👉Fitness App Development Solution - https://aglowiditsolutions.com/fitness-app-development/
 
 Hosted by:
 Aglowid IT Solutions
 Full-Stack IT Development Services Company
 
 🔗Useful Links:
-Facebook - https://www.facebook.com/AglowidItSol...
-LinkedIn - https://www.linkedin.com/company/aglo...
-Instagram - https://www.instagram.com/aglowiditso...
+Facebook - https://www.facebook.com/AglowidItSolutions
+
+LinkedIn - https://www.linkedin.com/company/aglowid-it-solutions
+
+Instagram - https://www.instagram.com/aglowiditsolutions
+
 Twitter - https://twitter.com/Aglowid
+
 Dribbble - https://dribbble.com/aglowid/
+
 Behance - https://www.behance.net/aglowid/
